@@ -7,9 +7,11 @@ A reading of the Ramayana through the lens of Euripides' Bacchae. The Universal 
 ---
 
 Dionysos comes to India
+
 Dionysia
 or
 The Orphic Ramayana
+
 To Euripides and Valmiki, masters of tragedy and horror
 
 The god came kindly at first to Thebes, saying, “Bring me all the wildness in your
