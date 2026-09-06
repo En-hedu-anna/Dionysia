@@ -2837,6 +2837,3 @@ to the greatest Dionysia ever celebrated upon the earth.
 KHAIRE DIONYSE
 
 
-Please drop by the Archive and comment to let the creator know if you enjoyed their work!
-
-
